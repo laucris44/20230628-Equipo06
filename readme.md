@@ -1,1 +1,2 @@
-Laura Giraldo - Vivian Rojas - Carolina Parra
+
+Laura Giraldo - Vivian Rojas - Carolina Parra - Tatiana Alzate
