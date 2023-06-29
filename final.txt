@@ -1,0 +1,2 @@
+favorito: Parte practica de Git,github
+Menos favorita: maquinas virtuales por las dificultades para instalar√
