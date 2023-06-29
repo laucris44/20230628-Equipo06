@@ -1,2 +1,2 @@
 
-Laura Giraldo - Vivian Rojas - Carolina Parra - Tatiana Alzate- Luis Fernando Troncoso Montes
+Laura Giraldo - Vivian Rojas - Carolina Parra - Tatiana Alzate- Luis Fernando Troncoso Montes - Andrea Carreño
